@@ -45,4 +45,5 @@
 ## 📫 Contact Me  
 - 📧 Email: **alitnaviani0001384@gmail.com**  
 - 💬 Telegram: [@enjoy_life000](https://t.me/enjoy_life000)  
-- 📱 Phone: **+98 996 015 2069**  
+- 📱 Phone: **+98 996 015 2069**
+- 💼 Linkdin: **https://www.linkedin.com/in/ali-naviani/**
